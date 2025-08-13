@@ -47,7 +47,7 @@ Feel free to reach out to me through the following channels:
 
 - **Email**: [sakshikumaritiwari22@gmail.com](mailto:sakshikumaritiwari22@gmail.com)
 - **LinkedIn**: [Sakshi Kumari ](//https://www.linkedin.com/sakshi-tiwary-57526429a)
-- **GitHub**: [sakshikumari ]
+- **GitHub**: [sakshikumari ](https://github.com/Tiwary26)
 
 ## Installation
 
